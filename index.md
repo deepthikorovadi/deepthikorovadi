@@ -8,8 +8,8 @@ Thank you for being here!
 
 ## Links to few of my social Profiles:
 
-Click **[here](https://www.facebook.com/deepthi.korovadi.3/)** to find me on Facebook!
-Click **[here](https://www.instagram.com/canonnalli/)** to find me on Instagram!
-Click **[here](https://medium.com/@deepthihathwar12/my-journey-with-mental-health-how-quarantine-was-boon-f83df4db278b)** to check out my Blog post on Medium!
+- Click **[here](https://www.facebook.com/deepthi.korovadi.3/)** to find me on Facebook!
+- Click **[here](https://www.instagram.com/canonnalli/)** to find me on Instagram!
+- Click **[here](https://medium.com/@deepthihathwar12/my-journey-with-mental-health-how-quarantine-was-boon-f83df4db278b)** to check out my Blog post on Medium!
 
 ## Thank you! 

@@ -3,7 +3,7 @@
 ## About Me 
 
 Hi! I'm Deepthi. I'm currently living in Bengaluru, Karnataka. I am a photographer, part Digital Marketer and also currently pursuing my Bachelor's in Computer Science. 
-This website is an experiment and me trying to learn to code in Markdown, HTML and CSS. I am gonna showcase some of my best work on this site!
+This website is an experiment and me trying to learn to code, HTML and CSS. I am gonna showcase some of my best work on this site!
 Thank you for being here! 
 
 ## Links to few of my social Profiles:

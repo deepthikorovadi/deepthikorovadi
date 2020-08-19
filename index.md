@@ -13,3 +13,9 @@ Thank you for being here!
 - Click **[here](https://medium.com/@deepthihathwar12/my-journey-with-mental-health-how-quarantine-was-boon-f83df4db278b)** to check out my Blog post on Medium!
 
 ## Thank you! 
+
+## Contact Me here:
+
+Deepthi
+
+Contact me on deepthi@gmail.com
